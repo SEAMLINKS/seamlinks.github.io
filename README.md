@@ -1,1 +1,1 @@
-# seamlinks.github.io
+# Hello, this site will lunch soon.
